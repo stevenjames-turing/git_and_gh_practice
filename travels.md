@@ -1,0 +1,1 @@
+I recently traveled to Boston with my wife and we had a fantastic time. We loved the walkability of the city and enjoyed the architectural blend of old and new construction. We spent our days walking the city and exploring all of the historical sites through the downtown area. 
